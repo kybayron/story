@@ -21,8 +21,12 @@ Steve and Dave use Etoro to Invest in sTonKs!
 BIR cracks down on Axie players because they need more funds.
 
 # Chapter 10 
-Bitcoin prices go down. Etherium goes up. John is dead. Steve wins. 
+Bitcoin prices go down. Etherium goes up. John is dead. Steve wins.
+
 # Chapter 11: YouTube -> YouTaXeD
 BIR cracks down also on Youtube content creators
+
+# Chapter 12: Something here
+ksdfjsdkfjsdkfjdsfkjdsfslkjfsdlkjfskldjfsdkfjsdflksdjfsdj
 
 
