@@ -16,3 +16,6 @@ He calmed himself down and tried to visualize the system in his head. He thought
 # Chapter 8: E-toro AD heRe
 Steve and Dave use Etoro to Invest in sTonKs!
 
+# Chapter 9: BIR vs AXIE
+
+BIR cracks down on Axie players because they need more funds.
