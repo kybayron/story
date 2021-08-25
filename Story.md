@@ -8,3 +8,5 @@ The boss decided to have a talk with him.
 John was now a team leader. It was harder than he thought.
 # Chapter 5: Prod Issue
 A critical prod issue occurred. Everyone looked to Steve for the solution.
+# Chapter 6: Stumped
+I cry.
