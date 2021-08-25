@@ -22,3 +22,6 @@ BIR cracks down on Axie players because they need more funds.
 
 # Chapter 10 
 Bitcoin prices go down. Etherium goes up. John is dead. Steve wins. 
+# Chapter 10: YouTube -> YouTaXeD
+
+
