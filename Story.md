@@ -13,4 +13,6 @@ I cry but then he saw all his officemates and got embarassed. Steve found the bu
 Steve decided that the team needed to replicate the bug first.
 # Chapter 7: Inspiration 
 He calmed himself down and tried to visualize the system in his head. He thought of a solution!
+# Chapter 8: E-toro AD heRe
+Steve and Dave use Etoro to Invest in sTonKs!
 
