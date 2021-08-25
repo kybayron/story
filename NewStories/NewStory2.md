@@ -1,1 +1,1 @@
-A long, long time ago, in a galaxy far, far away
+In the great green room, there was a telephone
