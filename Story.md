@@ -26,15 +26,13 @@ BIR cracks down on Axie players because they need more funds.
 Bitcoin prices go down. Etherium goes up. John is dead. Steve wins.
 
 # Chapter 11: YouTube -> YouTaXeD
+
 BIR cracks down also on Youtube content creators
 
 # Chapter 12: Something here
+
 ksdfjsdkfjsdkfjdsfkjdsfslkjfsdlkjfskldjfsdkfjsdflksdjfsdj
 
-
-
-# Chapter 11: YouTube -> You
-
-# Chapter 12: Kaboom
+# Chapter 13: Kaboom
 
 Steve and John attempted to push to the same repository at the same time. Their project exploded. THE END.
