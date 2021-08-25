@@ -36,3 +36,6 @@ ksdfjsdkfjsdkfjdsfkjdsfslkjfsdlkjfskldjfsdkfjsdflksdjfsdj
 # Chapter 13: Kaboom
 
 Steve and John attempted to push to the same repository at the same time. Their project exploded. THE END.
+
+# Chapter 14 Not the end?!
+*gasp* it's not the end! Wait for part 2!
